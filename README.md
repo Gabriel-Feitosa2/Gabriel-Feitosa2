@@ -6,7 +6,7 @@
 
 I like to learn about technology and I seek to grow as a professional every day learning a little more
 
-💼 scholarship at NDS-software development sector 
+💼 software engineer in Merx
 
 🖥️ graduated in computer technician
 
