@@ -6,7 +6,7 @@
 
 I like to learn about technology and I seek to grow as a professional every day learning a little more
 
-💼 software engineer in Merx
+💼 software engineer in Imparh
 
 🖥️ graduated in computer technician
 
